@@ -1,8 +1,4 @@
-Primeiro  dia  usando  este  site
-
-
-
-*Boa Tarde*
+Seja bendo
 
 
 
